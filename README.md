@@ -6,3 +6,4 @@ This repository is for practicing the GitHub Flow.
 
 My name is Manish Chevuru.
 My friend Arya Naidu has W rizz.
+My friend Arya likes nice (thighs) eyes
